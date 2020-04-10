@@ -1,2 +1,2 @@
 # trash-com-
-hi
+welcom to trashcom 
